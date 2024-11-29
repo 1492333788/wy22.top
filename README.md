@@ -3,7 +3,7 @@ wy561166.vip
 万赢官方地址 wy561166.vip
 
 万赢官方地址 最新地址发布
-永 久 域 名 https://github.com/1492333788/w8047.com
+永 久 域 名 https://github.com/1492333788/wy22.top
 
 ##⭐️👉访问最新地址1：https://wy33.vip
 
